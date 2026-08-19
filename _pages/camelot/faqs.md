@@ -31,7 +31,7 @@ We estimate that the new bunkhouse will cost $500,000. This figure is based on s
 
 The estimated bunkhouse cost does not include the following:
 * Phase 1 design work with Maclay Architects, which was funded and completed prior to the official launch of the project and fundraising campaign.
-* Construction of a new parking lot, which was requested by the town of Groton as a condition for granting our zoning exemption for the property.
+* Construction of a new parking lot, which was requested by the town of Groton as a condition for granting our zoning exemption for the property. This work is now complete
 * Construction of an improved trail to the bunkhouse site, to permit access by an ATV or mini excavator. We anticipate that much of this work can be done by MITOC volunteers.
 
 ### Why not buy a house instead?
@@ -59,7 +59,7 @@ Yes, it is possible to donate by check!  Please make your check payable to MIT F
 
 ### When will construction start?
 
-We signed the contract for site preparation, including construction of the new parking lot and access trail, in December 2023. This construction started in summer 2024 and wrapped  in spring 2025. For the next phase, more funding is needed. Funding permitting, the bunkhouse structure itself will be erected starting in summer 2027.
+We signed the contract for site preparation, including construction of the new parking lot and access trail, in December 2023. This construction started in summer 2024 and wrapped in spring 2025. For the next phase, more funding is needed. Funding permitting, the bunkhouse structure itself will be erected starting in summer 2027.
 
 ### How long will construction take?
 
